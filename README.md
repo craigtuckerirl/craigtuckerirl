@@ -1,5 +1,3 @@
-Craig , 19 years old.
-
 bipolar , DID , ADHD diagnosed.
 
 pfp made by @crenzy-rbyi (art not theirs)
