@@ -1,3 +1,5 @@
+# fyi im not a pt player anymore, quitted.
+
 bipolar , DID , ADHD diagnosed.
 
 I rather not have anymore friends. Don't ask or send requests unless this has changed. 💙
